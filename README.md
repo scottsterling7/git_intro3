@@ -1,2 +1,1 @@
 Scott Sterling
-40
